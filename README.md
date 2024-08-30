@@ -1,4 +1,4 @@
-### Olá, Eu sou o Iago L. J. Oliveira 🤙🏽
+### Olá, Eu me chamo Iago L. de J. Oliveira 🤙🏽
 #### “Nós somos aquilo que fazemos repetidamente. Excelência, então, não é um modo de agir, mas um hábito.”
 #
 [![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/iago-lucian/)
